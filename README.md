@@ -4,7 +4,7 @@ I'm XERAEN.  I work with a cohort of excellent people.
 
 You can catch me on other platforms:
 
-* [**YouTube**](https://youtube.com/channel/UCAM_Tt0PPKqIbwPHGBI8z2A)
+* [**YouTube**](https://www.youtube.com/channel/UCONVmBSOdUV-mMyOFeXridg)
 * [**Instagram**](https://instagram.com/XERAEN)
 * [**TikTok**](https://tiktok.com/@XERAEN)
 * [**Twitter**](https://twitter.com/XERAEN)
