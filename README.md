@@ -14,7 +14,7 @@ Some currently inactive but not necessarily abandoned bands/acts:
 
 | Band |  |  |  |  |
 | ---- | :-- | :-- | :-- | :-- |
-| [**The.CyberPul.se**](https://youtube.com/channel/UCU6TswZ2C-QJ3jgf5ujhHNw) | [Spotify](https://open.spotify.com/artist/7qxLKeM7MtIHo1iXtBtfXR?si=0531U0k3Rk-jkMwGVYrjlQ&dl_branch=1) | [Apple](https://music.apple.com/us/artist/the-cyberpul-se/1532176112) | [Bandcamp](https://thecyberpulse.bandcamp.com/) | Inactive since mid-2021 |
+| [**The.CyberPul.se**](https://youtube.com/channel/UCU6TswZ2C-QJ3jgf5ujhHNw) | [Spotify](https://open.spotify.com/artist/7qxLKeM7MtIHo1iXtBtfXR?si=0531U0k3Rk-jkMwGVYrjlQ&dl_branch=1) | [Apple](https://music.apple.com/us/artist/the-cyberpul-se/1532176112) | [Bandcamp](https://thecyberpulse.bandcamp.com/) | Inactive since mid-2020 |
 | **Alive Through Death** | [Spotify](https://open.spotify.com/artist/54zZZ9hPXdXpF3UDi7NAm6?si=gjtgAQzSRbS4lkfFMYF-zw&dl_branch=1) | [Apple](https://music.apple.com/us/artist/alive-through-death/1534840852) | [Bandcamp](https://alivethroughdeath.bandcamp.com/releases) | Inactive since 2004 |
 | **Spellweaver** | Nothing | Yet | [Bandcamp](https://spellweaver.bandcamp.com) | Inactive since about 2012 or 2013 |
 
